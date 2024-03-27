@@ -1,0 +1,8 @@
+![image](https://github.com/Habib160205/tugas7/assets/150981755/761834d9-48b8-4bda-b00d-ed293def24fa)
+![image](https://github.com/Habib160205/tugas7/assets/150981755/96c450ed-1ddf-45ef-92b4-bfed089b94e2)
+![image](https://github.com/Habib160205/tugas7/assets/150981755/dc4f71e1-7ac9-4f96-8183-107688e032b6)
+![image](https://github.com/Habib160205/tugas7/assets/150981755/82eda741-3c82-47a8-974a-7bf02142f925)
+![image](https://github.com/Habib160205/tugas7/assets/150981755/1ddd6169-7cc7-4f5c-a6ec-27f276aa48da)
+![image](https://github.com/Habib160205/tugas7/assets/150981755/189fd735-1966-46ea-83e2-e0a59e491989)
+![image](https://github.com/Habib160205/tugas7/assets/150981755/e11859c3-554d-42ec-b544-ed0d47d4a2b0)
+![image](https://github.com/Habib160205/tugas7/assets/150981755/aa8e1635-2678-4bca-a16f-f695d0049272)
